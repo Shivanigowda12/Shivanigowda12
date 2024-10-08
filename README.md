@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Shivanigowda12](https://github.com/Shivanigowda12)
 
-- 📫 How to reach me **SHIVANIGOWDA1203@GMAIL.COM**
+- 📫 How to reach me **shivanigowda2531@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
